@@ -1,1 +1,2 @@
 Monica Parrillo
+parrillm@oregonstate.edu
